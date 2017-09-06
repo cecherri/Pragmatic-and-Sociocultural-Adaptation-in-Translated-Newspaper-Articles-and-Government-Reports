@@ -1,0 +1,1 @@
+# Pragmatic-and-Sociocultural-Adaptation-in-Translated-Newspaper-Articles-and-Government-Reports
